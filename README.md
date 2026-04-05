@@ -2,7 +2,7 @@
 
 ## About Me
 
-Sometimes i build stuff
+Sometimes i build stuff and talk about it here https://devfros.github.io/
 
 ### 📫 How to reach me: 
 
